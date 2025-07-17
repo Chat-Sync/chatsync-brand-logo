@@ -1,1 +1,0 @@
-# chatsync-brand-logo
